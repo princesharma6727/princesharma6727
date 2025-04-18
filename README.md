@@ -11,7 +11,7 @@
   📞 +91-7206626781  
   📧 princesharma.sharma6727@email.com | prince.2201053cs@iiitbh.ac.in  
   🌐 [LinkedIn Profile](https://www.linkedin.com/in/prince-sharma-339b59256/)  
-  💼 [Resume/Portfolio](https://your-portfolio-link.com)
+  💼 [Resume/Portfolio](https://drive.google.com/file/d/19lkoVMSXfq6L-EyUThtj2lK1nH0n-sog/view?usp=drive_link)
 
 ---
 
